@@ -1,0 +1,1 @@
+# ShapeAI_internship_project
